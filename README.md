@@ -5,4 +5,5 @@ me -10/17/19 2345- recovery | #100DaysOfCode | endless days of getting right | i
 
 -10/21/19- we did chkn salad spinach wraps at the barnes on the pkway.. home early.. attitude + bratty leaving kendrick.. insomnnia cookies.. 100LittleDecisions + zen habits + breathing.. awareness/ behavior/ consequences.. acceptance/ resistance/ change.. working!... but are we C O D I N G ! ? . . .
 
--10/22/19- 0055- added css/ ext style sheet .. still reqs alot of content + design attention .. h on snore .. niners on 6&0 still wit kap tho ... learn.shayhowe.com
+-10/22/19- 0055- added css/ ext style sheet .. still reqs alot of content + design attention .. h on snore .. niners on 6&0 still wit kap tho ... https://learn.shayhowe.com
+
